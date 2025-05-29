@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Carroll412025
+- 👋 Hi, I’m Kip Carroll @Carroll412025
 - 👀 I’m interested in ...Coastal Engineering
 - 🌱 I’m currently learning about Loop Current Eddies
 - 💞️ I’m looking to collaborate on ...
